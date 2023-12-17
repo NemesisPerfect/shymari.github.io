@@ -1,1 +1,0 @@
-shymari.github.io
